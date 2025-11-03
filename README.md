@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning a lot
 - Big part of my github is private so if you are a recruiter seeing this, there is a lot more that I can show you so 📫 You can reach me at jorgeradasilva@gmail.com
 
+- CEO/CFO/COO/CTO, dish washer, healer and priest @ https://exo-track.com/
